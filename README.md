@@ -3,4 +3,4 @@
 / Зиёдуллаев Жавохир Эркин угли /
 / Пиж-б-о-21-1 /
  
-![img](https://damion.club/uploads/posts/2022-11/1668512549_damion-club-p-zabavnie-kotiki-pinterest-1.jpg)
+![img](https://uprostim.com/wp-content/uploads/2021/02/image092-73.jpg)
